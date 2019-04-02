@@ -1,1 +1,2 @@
-# Patarta.github.io
+Rodriguo vallejos
+thibault phommasone
